@@ -1,7 +1,7 @@
 # My-Journey
 It contains details about my journey 
 
-Today i just completed some lessons and some practice questions at codedex.io and followed my basic routine . Dated - 31/12/2025
+Today i just completed some lessons and some practice questions at codedex.io and followed my basic routine . <br> Also i learned about lists in python with some lists methods and operations . <br> And finnaly its last of december and tommorow is new year😭✨🥤Dated - 31/12/2025
 
 So today I just followed my usual routine and nothing much. Dated - 30/12/2025
 
