@@ -1,6 +1,8 @@
 # My-Journey
 It contains details about my journey 
 
+Today i just completed some lessons and some practice questions at codedex.io and followed my basic routine . Dated - 31/12/2025
+
 So today I just followed my usual routine and nothing much. Dated - 30/12/2025
 
 So today is 29/12/2025 and the year is going to end in less than 3 days and i hope that next year ill be more productive <br>Also today i learned about arrays and functions in JavaScript ✨🌷<br> And i also learned about how to contribute in open source projects so i'll give it a try🥤.  
