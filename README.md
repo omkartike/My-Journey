@@ -1,7 +1,7 @@
 # My-Journey
 It contains details about my journey 
 
-So today is January 1st 2026 and its new year so happy new year to everyone who's reading this rep🎉🎊😭 < br> Also i started to go to gym from taoday onwards so that i can improve my self physically & also it will boost my confidence 🥰👀 <br> Let's see if i can maintain .
+So today is January 1st 2026 and its new year so happy new year to everyone who's reading this rep🎉🎊😭 < br> Also i started to go to gym from taoday onwards so that i can improve my self physically & also it will boost my confidence 🥰👀 <br> Let's see if i can maintain . Dated - 01/01/2026 🌷😭
 
 Today i just completed some lessons and some practice questions at codedex.io and followed my basic routine . <br> Also i learned about lists in python with some lists methods and operations . <br> And finnaly its last of december and tommorow is new year😭✨🥤Dated - 31/12/2025
 
