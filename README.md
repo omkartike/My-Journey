@@ -1,6 +1,8 @@
 # My-Journey
 It contains details about my journey 
 
+Today I learned about some more concepts of javascript and python and after completing js completely I'll move to type script 💫 And also I started my new habit of going gym 🙂‍↕️🫰 Dated - 03/01/2026
+
 Forgot to update this repo on time and my streak ended before it even started whyy 😭😭 but yeah from Tommorow onwards I'll maintain it 🤌 . Dated - 02/01/2026 
 
 So today is January 1st 2026 and its new year so happy new year to everyone who's reading this rep🎉🎊😭 < br> Also i started to go to gym from taoday onwards so that i can improve my self physically & also it will boost my confidence 🥰👀 <br> Let's see if i can maintain . Dated - 01/01/2026 🌷😭
