@@ -1,6 +1,8 @@
 # My-Journey
 It contains details about my journey 
 
+Today i coompleted most of my daily tasks and also learned some of the new concepts in javascript and python😁. Also i hit my pr in gym in leg press so i'm very happy😚.
+
 Today i completed my regular routine and i'm happy that i was able to follow my routine up until now 😁🙌 <br> Hopefully i'll mantain my this streak and i'll stay discplined entire year 💕😘.Dated - 05/01/2026  
 
 So today i learned some new concepts in python which includes python functions and just completed my daily schedule 🔥🥰. <br>Hopefully this year ill achieve something good....Dated - 04/01/2026
