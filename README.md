@@ -1,6 +1,8 @@
 # My-Journey
 It contains details about my journey 
 
+Today I completed my daily javascript and python learning 
+
 So today i completed most of my daily routine tasks.<br>Hopefully i'll be able to build some good habits by the end of the year 2026🤷‍♂️. Dated-07/01/2026
 
 Today i coompleted most of my daily tasks and also learned some of the new concepts in javascript and python😁. Also i hit my pr in gym in leg press so i'm very happy😚. <br>Dated-06/01/2026
