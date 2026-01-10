@@ -1,6 +1,8 @@
 # My-Journey
 It contains details about my journey 
 
+Did nothing special today cuz I'm busy in some personal work 😥.Dated-10/01/2026
+
 Nothing Special Just completed my daily habits and study😅.
 Dated-09/01/2026
 
