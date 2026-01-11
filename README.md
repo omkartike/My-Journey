@@ -1,6 +1,8 @@
 # My-Journey
 It contains details about my journey 
 
+Just completed some of the lessons today and followed my basic schedule 😭. Dated - 11/01/2026
+
 Did nothing special today cuz I'm busy in some personal work 😥.Dated-10/01/2026
 
 Nothing Special Just completed my daily habits and study😅.
