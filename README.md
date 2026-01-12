@@ -1,6 +1,8 @@
 # My-Journey
 It contains details about my journey 
 
+Completed my daily tasks and slowly becoming more disciplined 😣. Hopefully I'll be committed in doing so 😅 . Dated - 12/01/2026
+
 Just completed some of the lessons today and followed my basic schedule 😭. Dated - 11/01/2026
 
 Did nothing special today cuz I'm busy in some personal work 😥.Dated-10/01/2026
