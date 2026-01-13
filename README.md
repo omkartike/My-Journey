@@ -1,6 +1,8 @@
 # My-Journey
 It contains details about my journey 
 
+So today i hit my pr again in gym i'm so happy😁.<br>Also as for productivity i continued learning my coding languages hope i'll stay consistent and disciplined🤷‍♂️.<br>Dated-13/01/2026.
+
 Completed my daily tasks and slowly becoming more disciplined 😣. Hopefully I'll be committed in doing so 😅 . Dated - 12/01/2026
 
 Just completed some of the lessons today and followed my basic schedule 😭. Dated - 11/01/2026
