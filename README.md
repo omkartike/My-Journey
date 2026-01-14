@@ -1,6 +1,8 @@
 # My-Journey
 It contains details about my journey 
 
+Just completed my daily goals and regular habits😊.<br>Also i studied almost 12 hours today i dont know how but yeah i did it😁.Dated-14/01/2026
+
 So today i hit my pr again in gym i'm so happy😁.<br>Also as for productivity i continued learning my coding languages hope i'll stay consistent and disciplined🤷‍♂️.<br>Dated-13/01/2026.
 
 Completed my daily tasks and slowly becoming more disciplined 😣. Hopefully I'll be committed in doing so 😅 . Dated - 12/01/2026
