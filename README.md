@@ -1,6 +1,8 @@
 # My-Journey
 It contains details about my journey 
 
+So todaay i worked on some projects and as usual i did my daily routine😚.Dated-16/01/2026
+
 Today I had some personal work so wasn't able to do so much 😣 from tomorrow onwards I'll do it no matter what😭.Dated - 15/01/2026
 
 Just completed my daily goals and regular habits😊.<br>Also i studied almost 12 hours today i dont know how but yeah i did it😁.Dated-14/01/2026
