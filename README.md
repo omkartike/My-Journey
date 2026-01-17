@@ -1,6 +1,8 @@
 # My-Journey
 It contains details about my journey 
 
+Today i worked on a website named codedex for learning things related to coding languages😚.Hopefully i'll learn efficiently and i'm also mantaining to regularly learn git and github.Dated-17/01/2026
+
 So todaay i worked on some projects and as usual i did my daily routine😚.Dated-16/01/2026
 
 Today I had some personal work so wasn't able to do so much 😣 from tomorrow onwards I'll do it no matter what😭.Dated - 15/01/2026
