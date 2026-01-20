@@ -1,7 +1,7 @@
 # My-Journey
 It contains details about my journey 
 
-So today i learned about git and github🙌.And did my daily schedule and im slowly becoming more disciplined😁.Dated-19/01/2026
+So today i learned more about git and github🙌.And did my daily schedule and im slowly becoming more disciplined😁.Dated-19/01/2026
 
 So today I completed my 30 days of my no fap journey for which I'm very proud and happy 😭. Now I'm feeling much better than before😸🌷.Dated-18/01/2026
 
