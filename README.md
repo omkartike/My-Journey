@@ -1,6 +1,8 @@
 # My-Journey
 It contains details about my journey 
 
+I was a bit late and my streak ended 😭😭.Dated-21/01/2026
+
 Today i was busy in some personal work so wasn't able to do much productive task but yeah followed my daily routine😭🙌.Dated-20/01/2026
 
 So today i learned more about git and github🙌.And did my daily schedule and im slowly becoming more disciplined😁.Dated-19/01/2026
