@@ -1,6 +1,8 @@
 # My-Journey
 It contains details about my journey 
 
+So there is a slight delay in plans initially i was planning for university of Wolverhampton but for some reasons i had to change and now going for Coventry university😭.<br>For Cloud Computing course.Dated-23/01/2026
+
 I was a bit late and my streak ended 😭😭.Dated-21/01/2026
 
 Today i was busy in some personal work so wasn't able to do much productive task but yeah followed my daily routine😭🙌.Dated-20/01/2026
