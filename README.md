@@ -1,6 +1,8 @@
 # My-Journey
 It contains details about my journey 
 
+Today i started rewatching One Piece anime which is again my best decision😭🙌.<br>As always i completed my study sessions and my regular routine😁.Dated-24/01/2026
+
 So there is a slight delay in plans initially i was planning for university of Wolverhampton but for some reasons i had to change and now going for Coventry university😭.<br>For Cloud Computing course.Dated-23/01/2026
 
 I was a bit late and my streak ended 😭😭.Dated-21/01/2026
