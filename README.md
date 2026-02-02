@@ -1,7 +1,7 @@
 # My-Journey
 It contains details about my journey.....!!!
 
-As of today is Sunday so i took a break off😭.Dated-25/01/2026
+As of today is Sunday so i took a break off😭.Dated-25/01/2026!
 
 Today i started rewatching One Piece anime which is again my best decision😭🙌.<br>As always i completed my study sessions and my regular routine😁.Dated-24/01/2026...!
 
