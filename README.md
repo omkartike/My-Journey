@@ -1,11 +1,12 @@
 # My-Journey
 It contains details about my journey.....!!!
 
+So finnally i got my first certification from AWS (Amazon Web Services) in introduction to AI/ML and AWS Services and im very happy also i posted ny first linkedin post. Dated-28/03/2026<br>
+If you want to check it out here's the link below -- > [LinkedIn](https://www.linkedin.com/in/om-kartike)
+
 As of today is Sunday so i took a break off😭.Dated-25/01/2026!
 
 Today i started rewatching One Piece anime which is again my best decision😭🙌.<br>As always i completed my study sessions and my regular routine😁.Dated-24/01/2026...!
-
-So there is a slight delay in plans initially i was planning for university of Wolverhampton but for some reasons i had to change and now going for Coventry university😭.<br>For Cloud Computing course.Dated-23/01/2026...!
 
 I was a bit late and my streak ended 😭😭.Dated-21/01/2026..
 
