@@ -1,6 +1,8 @@
 # My-Journey
 It contains details about my journey.....!!!
 
+Just completed my some of the modules of google cloud computing course and did 2 codelabs today.Dated-01/04/2026
+
 Just got selected for Github Dev Days Copilot program event , i'm very much excited to see what happens next 
 
 So finnally i got my first certification from AWS (Amazon Web Services) in introduction to AI/ML and AWS Services and im very happy also i posted ny first linkedin post. Dated-28/03/2026<br>
